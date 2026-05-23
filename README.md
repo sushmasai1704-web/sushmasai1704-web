@@ -31,4 +31,4 @@
 
 ---
 
-📧 sushmasai1704@gmail.com · 📍 Hyderabad, India
+📧 sushmasai1704@gmail.com · 📍 Anantapur, India
